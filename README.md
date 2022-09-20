@@ -7,7 +7,7 @@ Ravi Kant
 
 Vigneshwar C
 
-Vimal Raaj M
+Vimal
 
 Kumara Kurunt K S
 
